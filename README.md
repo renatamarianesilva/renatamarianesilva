@@ -9,5 +9,4 @@
 
  @_reh.silvaz_
 
-https://tenor.com/KQUbsGcIco.gif 
-
+![image](https://github.com/user-attachments/assets/e4333be5-ddcf-4100-9eb9-7b2fee1c3d41)
