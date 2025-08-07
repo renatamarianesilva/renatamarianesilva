@@ -1,6 +1,6 @@
   ### Bem vindos ao meu perfil 💜
 
-    Meu nome é Renata Mariane Da Silva 🦋🥀
+    Meu nome é Renata🦋🥀
 
  -sou aluna de programação
  -Estou estudando na [Alura]
